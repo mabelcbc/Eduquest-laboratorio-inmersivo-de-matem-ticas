@@ -1,1 +1,1 @@
-# Eduquest-laboratorio-inmersivo-de-matem-ticas
+# Eduquest-laboratorio-inmersivo-de-matemáticas
